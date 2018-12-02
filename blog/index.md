@@ -7,4 +7,4 @@
 
 > KGB who?
 
-> **We will askthe queations**
+> **We will ask the queations**
